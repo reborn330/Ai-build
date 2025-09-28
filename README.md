@@ -1,0 +1,1 @@
+This software has been being worked on for last 7 months it has been in sandbox for the first 6 months why i was testing it to make shore it was safe for computers and it dose what i intended it to do
